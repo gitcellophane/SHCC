@@ -1,0 +1,2 @@
+# SHCC
+Shanghai Composers Collective
